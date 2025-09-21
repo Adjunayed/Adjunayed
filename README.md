@@ -1,4 +1,4 @@
-![](https://scontent.fzyl5-2.fna.fbcdn.net/v/t39.30808-6/486783398_2393750510971617_7733966167448258132_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=cc71e4&_nc_eui2=AeEgfOmripOqUGrzCez-VoT0_mRE-dcmrBL-ZET51yasEmWcL6qW4P1sA-qb7Wvvj7zwHCmNK4UVVQGYRNtqIXVc&_nc_ohc=eX5tiEiWgzIQ7kNvwGXPKjr&_nc_oc=Adn6I04hsBUUmJDCvQCITtFatdWxCIVdcc8yR4UjLo84LBE6zlUSEPpvSvrd0GZe3TQ&_nc_zt=23&_nc_ht=scontent.fzyl5-2.fna&_nc_gid=j68-pacA4WVqBsgpKRkaYQ&oh=00_AfZOajuEHz-FSwZILbYNwLwBbzWmvIKFBQStwO5gq0mNEg&oe=68D62ADF)
+![](https://media.licdn.com/dms/image/v2/D5616AQH_7Ap6XKIBAg/profile-displaybackgroundimage-shrink_350_1400/B56ZludBcRI8Ac-/0/1758494734448?e=1761177600&v=beta&t=evmQXPuRMMaJuECedxpMkvqNfCaIwFMp5ApexJxhT6o)
 
 A dreamer, a learner, ready to take challenges and work with full dedication. Playing with colors is my passion.
 *** ** *
